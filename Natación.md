@@ -12,3 +12,15 @@ Quema muchas calorías, lo que ayuda en la reducción de grasa corporal.
 Es un ejercicio de bajo impacto, ideal para personas con problemas articulares o lesiones.
 Mejora la coordinación y el equilibrio, ya que requiere la sincronización de los movimientos de los brazos y las piernas.
 Alivia el estrés y mejora el bienestar general, ya que el agua tiene un efecto relajante en el cuerpo.
+
+
+# Instrucciones:
+
+Comienza en el borde de la piscina o en el agua con el cuerpo extendido en una posición horizontal.
+Mantén los brazos estirados hacia adelante, con las palmas de las manos hacia abajo, y comienza a alternar los movimientos de los brazos, llevando uno hacia adelante mientras el otro se mueve hacia atrás.
+Los movimientos de los brazos deben ser circulares, con los codos ligeramente doblados, y las manos entrando en el agua a la altura de los hombros.
+Mientras realizas los movimientos de los brazos, alterna el movimiento de las piernas, haciendo un movimiento de patada en el agua similar al de un aleteo. Mantén las piernas rectas y flexiona ligeramente las rodillas.
+La respiración debe ser fluida; gira la cabeza hacia un lado para inhalar cada 2 o 3 brazadas, y exhala mientras tu rostro está en el agua.
+Mantén el cuerpo alineado, evitando que se hunda la cabeza o las piernas. Tu cuerpo debe estar en una línea recta desde la cabeza hasta los talones.
+Continúa nadando a un ritmo constante, manteniendo una cadencia fluida. Puedes realizar sesiones de 15 a 30 minutos, alternando entre intensidad moderada y alta.
+Finaliza con un enfriamiento, nadando de manera suave durante unos minutos.
