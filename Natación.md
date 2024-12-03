@@ -24,3 +24,13 @@ La respiración debe ser fluida; gira la cabeza hacia un lado para inhalar cada 
 Mantén el cuerpo alineado, evitando que se hunda la cabeza o las piernas. Tu cuerpo debe estar en una línea recta desde la cabeza hasta los talones.
 Continúa nadando a un ritmo constante, manteniendo una cadencia fluida. Puedes realizar sesiones de 15 a 30 minutos, alternando entre intensidad moderada y alta.
 Finaliza con un enfriamiento, nadando de manera suave durante unos minutos.
+
+# Consejos y Precauciones:
+
+Mantén una postura relajada, evitando tensar el cuerpo innecesariamente. No arquees excesivamente la espalda ni mantengas la cabeza muy alta fuera del agua.
+Si eres principiante, comienza con sesiones más cortas y aumenta gradualmente la distancia y la intensidad a medida que mejoran tu resistencia y técnica.
+Evita movimientos bruscos o rápidos que puedan tensar los músculos. La técnica y la fluidez del movimiento son clave.
+No sobrecargues los hombros; trata de distribuir el esfuerzo entre los músculos de los brazos, el core y las piernas.
+Si sientes molestias en el cuello o en la espalda baja, revisa tu postura y técnica. Asegúrate de que tu cuello esté en línea con la columna y que no esté doblado hacia arriba al respirar.
+Recuerda mantenerte hidratado antes y después de nadar, ya que, aunque estás en el agua, el esfuerzo físico también requiere reposición de líquidos.
+Si tienes alguna afección de salud o lesión, consulta a un profesional de la salud antes de comenzar un programa de natación.
