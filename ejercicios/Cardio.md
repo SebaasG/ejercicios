@@ -24,3 +24,14 @@ Mantén el core activado y los codos cerca de los costados del cuerpo mientras g
 A medida que te sientas más cómodo, puedes aumentar la velocidad de los saltos y girar la cuerda más rápido.
 Realiza intervalos de 30 segundos a 1 minuto de saltos seguidos, seguido de 30 segundos de descanso. Repite durante 5 a 10 minutos, dependiendo de tu nivel de condición física.
 A medida que mejoren tus habilidades, puedes añadir variaciones como saltos dobles (donde la cuerda pasa dos veces por debajo de tus pies en un solo salto) o saltos alternos (saltando de un pie a otro).
+
+
+# Consejos y Precauciones:
+
+Asegúrate de usar un calzado adecuado con buen soporte para evitar lesiones en los tobillos y rodillas.
+Mantén la espalda recta durante todo el ejercicio, con los hombros relajados y el core activado.
+Si eres principiante, empieza con saltos pequeños y aumenta gradualmente la velocidad y la intensidad.
+Si te cuesta coordinar los movimientos al principio, practica con saltos simples y ve aumentando la dificultad conforme avances.
+Evita saltar demasiado alto, ya que solo necesitas un pequeño salto para pasar la cuerda por debajo de los pies.
+Si sientes molestias en las rodillas o los tobillos, asegúrate de saltar sobre una superficie suave (como una alfombra o un tapete de goma) y revisa tu técnica.
+Es importante calentar adecuadamente antes de comenzar con el ejercicio y enfriar después con estiramientos para evitar lesiones.
