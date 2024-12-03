@@ -25,3 +25,14 @@ Asegúrate de girar el torso y las caderas al realizar los golpes, lo que permit
 Mantén una respiración controlada, exhalando con cada golpe.
 Realiza el ejercicio durante 2-3 minutos por cada ronda, con descansos breves entre ellas. Puedes hacer entre 3 a 5 rondas, dependiendo de tu nivel de entrenamiento.
 Concéntrate en la precisión y la velocidad de los movimientos, no solo en la fuerza. Trata de mejorar constantemente la fluidez de tus golpes.
+
+# Consejos y Precauciones:
+
+Mantén siempre una buena postura, con la espalda recta y los hombros relajados, evitando tensar el cuerpo innecesariamente.
+No te apresures a hacer los golpes. Asegúrate de realizar cada movimiento de manera controlada y con técnica, lo que te permitirá mejorar la velocidad y la precisión.
+Practica frente a un espejo para corregir tu forma y asegurar que los movimientos sean efectivos.
+Usa guantes de boxeo o vendas si deseas proteger las muñecas y los nudillos durante el ejercicio.
+Si eres principiante, comienza con series cortas (1-2 minutos) e incrementa la duración conforme vayas mejorando tu resistencia y técnica.
+Evita sobrecargar los hombros y las muñecas al realizar los golpes. Si sientes dolor, revisa tu postura y técnica, y ajusta los movimientos si es necesario.
+No olvides calentar antes de comenzar a entrenar y enfriar adecuadamente después de la sesión para evitar lesiones.
+
