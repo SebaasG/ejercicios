@@ -22,3 +22,12 @@ Mantén los dedos de las manos bien extendidos y empuja el suelo con las palmas,
 Relaja la cabeza entre los brazos, manteniendo la mirada hacia el ombligo o el espacio entre los pies.
 Respira profundamente mientras mantienes la postura durante 15 a 30 segundos.
 Para salir, baja las rodillas al suelo y descansa en la postura del niño (Balasana).
+
+#  Consejos y precauciones 
+
+
+Mantén la espalda recta, evitando encorvarla. Piensa en alargar la columna vertebral en lugar de redondearla.
+No forzar el estiramiento. Si no puedes llevar los talones al suelo, no te preocupes, la flexibilidad mejorará con la práctica.
+Si sientes molestias en las muñecas o los hombros, trata de redistribuir el peso más hacia las piernas.
+Es importante no bloquear los codos, mantener una ligera flexión en ellos para evitar lesiones.
+Si tienes problemas de espalda o ciática, consulta a un profesional de la salud antes de realizar esta postura.
