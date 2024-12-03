@@ -22,3 +22,11 @@ Baja hasta que tus muslos estén paralelos al suelo o lo más bajo que puedas si
 Asegúrate de que las rodillas no sobrepasen los dedos de los pies.
 Empuja desde los talones para volver a la posición inicial.
 Repite el movimiento de 10 a 15 repeticiones en 3 series.
+
+# Consejos y Precauciones:
+
+Mantén el peso sobre los talones y no en los dedos de los pies durante todo el movimiento.
+No dejes que tus rodillas se junten o se desvíen hacia adentro.
+Evita redondear la espalda; mantiene la columna recta durante el ejercicio.
+Realiza el movimiento de manera controlada, sin prisa, para evitar lesiones.
+Si eres principiante, comienza con pocas repeticiones y aumenta gradualmente la intensidad.
