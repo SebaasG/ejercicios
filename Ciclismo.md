@@ -23,4 +23,14 @@ Durante la actividad, mantén la postura erguida, con los hombros relajados y la
 Si estás en una bicicleta estática, asegúrate de tener los pies bien sujetos a los pedales para evitar cualquier deslizamiento.
 A medida que avanzas, mantén un ritmo de respiración controlado, inhalando por la nariz y exhalando por la boca.
 Finaliza el ejercicio con una reducción gradual de la velocidad durante 5-10 minutos para enfriar el cuerpo y prevenir lesiones.
-s
+
+
+# Consejos y Precauciones:
+
+Asegúrate de mantener la postura adecuada en todo momento. Mantén la espalda recta y no te encorves sobre el manillar.
+Evita bloquear los codos y las rodillas; debes pedalear de manera fluida y relajada.
+Si sientes dolor o incomodidad en las rodillas, revisa la altura del sillín y los pedales. Una altura incorrecta puede generar tensión en las articulaciones.
+Si estás entrenando al aire libre, asegúrate de usar un casco y equipo de seguridad adecuado.
+Mantén un ritmo constante, pero no te exijas demasiado al principio. Ve aumentando la intensidad gradualmente a medida que vayas mejorando.
+Hidrátate bien antes, durante y después del ejercicio para evitar deshidratación, especialmente si pedaleas por largos períodos o en un ambiente caluroso.
+Si tienes problemas en la espalda o en las caderas, consulta a un profesional antes de comenzar un programa de ciclismo.
