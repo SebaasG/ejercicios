@@ -24,3 +24,13 @@ Salta nuevamente con los pies hacia las manos, volviendo a la posición de cucli
 Desde la posición de cuclillas, salta hacia arriba lo más alto que puedas, extendiendo los brazos hacia el techo.
 Aterriza suavemente con las rodillas ligeramente dobladas y repite el movimiento.
 Realiza de 10 a 15 repeticiones por serie y repite en 3-5 series, según tu nivel de condición física.
+
+# Consejos y Precauciones:
+
+Mantén la espalda recta durante todo el ejercicio, evitando arquear la parte baja de la espalda cuando estés en la posición de plancha.
+Asegúrate de que tus rodillas estén alineadas con los pies al aterrizar, para evitar lesiones en las articulaciones.
+Si eres principiante, comienza con una versión modificada de burpees sin flexión de brazos (solo el salto y la sentadilla) y ve agregando progresivamente la flexión a medida que adquieras fuerza y técnica.
+Realiza los saltos de forma controlada, especialmente si tienes problemas en las rodillas o los tobillos. Evita los saltos demasiado bruscos.
+Si sientes dolor o molestias en las muñecas, puedes realizar la flexión de brazos con las manos en una superficie elevada (como una caja o banco) para reducir la presión.
+Como es un ejercicio de alta intensidad, asegúrate de calentar adecuadamente antes de realizar burpees y de enfriar después para prevenir lesiones musculares.
+No te exijas demasiado al principio. Ve aumentando gradualmente la cantidad de repeticiones y series según tu nivel de entrenamiento.
