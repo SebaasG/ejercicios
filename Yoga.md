@@ -12,3 +12,13 @@ Aumenta la flexibilidad y la movilidad general.
 Calma la mente y reduce el estrés, promoviendo un estado de relajación y enfoque.
 Activa todo el cuerpo y prepara para otras posturas más complejas.
 
+# Instrucciones de cómo realizarlo
+
+Comienza en una posición de cuadrupedia, con las manos y las rodillas apoyadas en el suelo, alineadas con los hombros y las caderas, respectivamente.
+Asegúrate de que tus muñecas estén justo debajo de los hombros y las rodillas debajo de las caderas.
+Levanta las caderas hacia el techo, formando una "V" invertida con tu cuerpo.
+Estira las piernas y trata de llevar los talones hacia el suelo. Si no llegas con los talones al suelo, no te preocupes, mantén las piernas ligeramente dobladas.
+Mantén los dedos de las manos bien extendidos y empuja el suelo con las palmas, activando los músculos de los brazos.
+Relaja la cabeza entre los brazos, manteniendo la mirada hacia el ombligo o el espacio entre los pies.
+Respira profundamente mientras mantienes la postura durante 15 a 30 segundos.
+Para salir, baja las rodillas al suelo y descansa en la postura del niño (Balasana).
